@@ -1,1 +1,2 @@
 # lezzetlirestorant
+** SİTEMİZ ŞUANDA YAPIM AŞAMASINDADIR VE EKSİKLERİ BULUNABİLİR! **
